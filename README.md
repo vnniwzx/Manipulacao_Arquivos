@@ -1,1 +1,0 @@
-# Manipula-o
